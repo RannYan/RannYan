@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @RannYan
-- 👀 I’m interested in IT development everything that has to do with web...
+- 👀 I’m interested in IT development, everything that has to do with web...
 - I’m looking to collaborate with grand companies
 - 📫 How to reach me:
 - insta: nania_ran_
